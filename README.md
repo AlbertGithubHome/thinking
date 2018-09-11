@@ -10,4 +10,6 @@
 - 生活本当如此，得到纯属侥幸，得不到才是常态。
  ——[《这可能是很多人不幸福的原因》](https://www.jianshu.com/p/9680cda3ed41) at 2018-09-06 20:14:55
 
-[追寻更多](https://github.com/AlbertGithubHome/thinking/tree/master/thanksgiving)
+[追寻更多>>](https://github.com/AlbertGithubHome/thinking/tree/master/thanksgiving)
+
+# 执着
